@@ -1,1 +1,0 @@
-# learntricks_Internship
